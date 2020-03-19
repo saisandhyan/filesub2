@@ -44,3 +44,4 @@ Future-proofing your community
 		I am team-based organiser and in further we can be given by the content and Structure is nothing but individual responsibility towards the community who make the individual strong in their respective fields.Like for example i am a Android Nanodegree hoder so i will be sharing my knowledge with them and we will be clarifying there doubts and many more.
 		The leadership successors are chosen vy there interest and active participation there work based and mostly it depends on how they are handling or they are treating them and wether they are sharing all the information and some more will be considered.
 		When my turn is getting to completed at that time before 1-2 months we will be getting the new community lead and she will taughted every thing and the process will be continued and after giving the whole content only we will be handovered the community to the new leaders.
+		
